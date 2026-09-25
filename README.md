@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOMS841206MJCMJL08
+LOMS841206MJCMJL08
